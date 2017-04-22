@@ -1,2 +1,0 @@
-oke
-Dong 2
